@@ -7,4 +7,4 @@
 
 链接: https://pan.baidu.com/s/1zq5vYMGiGn2DQCG9anltQw 
 
-提取码: 3esa 复制这段内容后打开百度网盘手机App，操作更方便哦
+提取码: 3esa 
